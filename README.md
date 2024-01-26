@@ -1,2 +1,2 @@
 
-![Saitama Gif Banner](https://i.imgur.com/pgO3D5Y.gif) 
+![Devilman Banner](https://i.imgur.com/3QPcHXG.png) 
